@@ -1,1 +1,1 @@
-# Oria---AI-Automation-
+# Oria AI Automation
